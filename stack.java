@@ -1,2 +1,0 @@
-// jbvseuvru
-// cvwfvrtv
